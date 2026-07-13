@@ -1,3 +1,0 @@
-Bruno
-DESKTOP-9QU9QSL 
-12 July 2026  15:23:15
